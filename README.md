@@ -1,2 +1,2 @@
 I am usually Xenox, but this was not an available nickname...
-You can find out more about me on [my website](https://xenox.neocities.org/about.html).
+You can find out more about me on [my website](https://xenox.neocities.org).
